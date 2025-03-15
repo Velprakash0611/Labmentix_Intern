@@ -1,1 +1,0 @@
-# Labmentix_Intern
